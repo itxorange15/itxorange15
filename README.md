@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @itxorange15
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate with nobody at the moment
+- 📫 How to reach me- none.
+- 😄 Pronouns:she/her
+- ⚡ Fun fact:none.
